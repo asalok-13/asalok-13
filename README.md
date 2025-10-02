@@ -8,11 +8,6 @@
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: *I play pc Games*
 
-  
-# 💫 About Me:
-I'm currently with Imarticus Learning<br>Pg in Data sciece<br>Financial Analytics<br>R Language<br>Data Analytics<br>MBA (IT & Finance)<br>B.tech(EE)<br><br><br>
-
-
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/aloksrivastavaas) 
