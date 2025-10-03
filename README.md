@@ -6,7 +6,7 @@
 - 💬 Ask me about Data Science & new Techonology
 - 📫 How to reach me: **aloksrivastava317@gmail.com** 
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: *I play pc Games*
+- ⚡ Fun fact: *I play pc Games & Tournament*
 
 
 ## 🌐 Socials:
